@@ -1,4 +1,4 @@
-# Stake.com Espejos Oficiales 🔗
+# Stake.com Espejos Oficiales 🔗 1
 
 Bienvenido al repositorio actualizado de enlaces de espejos oficiales de Stake.com. Aquí encontrarás acceso rápido y seguro a la plataforma de casino líder mundial.
 
