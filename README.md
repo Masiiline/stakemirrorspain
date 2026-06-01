@@ -126,7 +126,7 @@ stake gambling site
 
 ## ⚖️ **Aviso Legal**
 
-Este repositorio solo proporciona información sobre accesos alternativos a Stake.com. El juego conlleva riesgos. Juega responsablemente. Verifica las leyes de tu país antes de participar. 18+ únicamente.
+Este repositorio solo proporciona información sobre accesos alternativos a Stake.com. El juego conlleva riesgos. Juega responsablemente. Verifica las leyes de tu país antes de participar. 18+ únicamente.1
 
 ---
 **Última actualización:** Febrero 2026  
